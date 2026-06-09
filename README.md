@@ -1,1 +1,0 @@
-# amadgeti-actividad
